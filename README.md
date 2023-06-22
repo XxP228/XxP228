@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Hello Call me YuTa ==========================================================================================================================================  👀 pls call me yutaaa !!!  * 🌍  I'm based in Thailand * 🖥️  See my portfolio at [Instagram](http://instagram.com/studykcm?igshid=NTc4MTIwNjQ2YQ==) * ✉️  You can contact me at [Kamonok.2548@gmail.com](mailto:Kamonok.2548@gmail.com) * 🧠  I'm learning Everything
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Hello Call me YuTa  👀 pls call me yutaaa !!!  * 🌍  I'm based in Thailand * 🖥️  See my portfolio at [Instagram](http://instagram.com/studykcm?igshid=NTc4MTIwNjQ2YQ==) * ✉️  You can contact me at [Kamonok.2548@gmail.com](mailto:Kamonok.2548@gmail.com) * 🧠  I'm learning Everything
 
 ### Skills  
 
